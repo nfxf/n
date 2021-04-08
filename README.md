@@ -5,7 +5,7 @@ movie studio
 
 
 
-cutt.ly/nfxf
+http://cutt.ly/nfxf
 
 
 
@@ -23,3 +23,24 @@ delegate directors
 
 
 remove wojcicki
+
+
+
+remove Andy Rubin
+
+
+
+
+arrest Bill Gates
+
+
+
+arrest Anthony Fauci
+
+
+
+cook popcorn
+
+
+
+project movies
