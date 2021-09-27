@@ -6,6 +6,10 @@ script, cast, direct, edit, publish and project these movies:
 
 http://xdrcft.com/n/nfxf/0.htm
 
+could use some Brech. AR. met you in SC for btc at starb0rkz!
+
+you may recall that I showed you an alphabetized database as apk for android os.
+
 give yourself awards at 7th anal AOOR awards 2nd Friday of March 2022.
 
 project, buy and sell 2022 releases at Constanța Digital Movie Festival July 2022.
