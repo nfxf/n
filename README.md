@@ -1,6 +1,12 @@
 # n
 movie studio
 
+improve these apks to involve rss and cronjobs to keep latest episode available automatically:
+
+https://mega.nz/folder/vTJQAZgJ#r23Q46hLE9KgkQBSpuK_YA
+
+also cause these shows to appear on "smart" tvs via direct url
+
 
 script, cast, direct, edit, publish and project these movies:
 
