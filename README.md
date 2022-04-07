@@ -1,5 +1,14 @@
 # n
-movie studio
+movie studio:
+
+please HELP:
+
+http://xdrcft.com/n/nfxf/0.htm
+
+
+
+
+additional:
 
 improve these apks to involve rss and cronjobs to keep latest episode available automatically:
 
